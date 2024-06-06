@@ -10,4 +10,4 @@ Meu nome é Beatriz Batista.
 
 @animabeatriz
 
-![](https://tenor.com/swFtq6RIu3j.gif)
+![](https://media1.tenor.com/m/1eKRjDS-j4sAAAAC/tocando-la-guitarra-steven.gif)
